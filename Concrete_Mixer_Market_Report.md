@@ -5,7 +5,7 @@
 
 ## Market Overview
 
-The global concrete mixer market was valued at **US$ 3.1 billion in 2022** and is projected to reach **US$ 5.2 billion by 2031**, growing at a compound annual growth rate (CAGR) of **6.0% from 2023 to 2031**. This growth is driven by rising infrastructure development, increasing urbanization, and a surge in construction activities worldwide, particularly in emerging economies. Demand for efficient and automated mixing solutions is also contributing to the market expansion.
+The global [concrete mixer market](https://www.transparencymarketresearch.com/concrete-mixer-market.html) was valued at **US$ 3.1 billion in 2022** and is projected to reach **US$ 5.2 billion by 2031**, growing at a compound annual growth rate (CAGR) of **6.0% from 2023 to 2031**. This growth is driven by rising infrastructure development, increasing urbanization, and a surge in construction activities worldwide, particularly in emerging economies. Demand for efficient and automated mixing solutions is also contributing to the market expansion.
 
 Concrete mixer market trends include connected technologies that have penetrated the construction machinery industry; recent years have seen the development of **IoT** and **GPS enabled concrete mixer machines**. Self-loading concrete mixers are contributing significantly to the profits of companies owing to their versatility of use, and optimal productivity & reliability, which is expected to increase concrete mixer market demand.
 
